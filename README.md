@@ -1,0 +1,2 @@
+# jefer
+I am a pretty lady very kind,honest,respectful, lovely and caring, i like to help people both casually and financially, I am 34 years old single do not have child,living with my family,i work in citi bank London  i work very hard to arm a living that suit me i like enjoying life,i like traveling to  another countries to meet new people make new friends have fun,I like swimming, playing with children, basketball,reading,watching interesting movies
